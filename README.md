@@ -1,1 +1,1 @@
-Coming soon!
+Coming soon! / Dod yn fuan!
